@@ -63,9 +63,10 @@ I love building **intelligent systems**, working on **AI surveillance**, and exp
 
 ## 🌍 Connect With Me
 
-📧 Email: pavanpalangappa15.com  
+📧 Email: pavanpalangappa15@gmail.com  
 
 🔗 LinkedIn: www.linkedin.com/in/pavanpalangappa
+
 💻 Portfolio: coming soon...
 
 ---
